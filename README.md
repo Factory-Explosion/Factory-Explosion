@@ -1,6 +1,6 @@
 ![GIF image](https://github.com/user-attachments/assets/07d15c3c-b390-43a5-bdbd-9b9dfd7e4990)
+<img width="360" height="270" alt="IMG_4861" src="https://github.com/user-attachments/assets/f5c6dab9-0434-48ff-b225-435c81a02302" />
 
-<img width="360" height="270" alt="IMG_4861" src="https://github.com/user-attachments/assets/c0e49d9f-5956-43c3-90e9-ba9b800efc52" />
 
 [𝑆𝑡𝑟𝑎𝑤𝑝𝑎𝑔𝑒](https://troopsstainedsanity.straw.page/)
 💥
