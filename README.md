@@ -16,7 +16,7 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r4eu7hkv4ingk57x7aujwbcmfi&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=473347&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-<img width="217" height="17" alt="IMG_4863" src="https://github.com/user-attachments/assets/3bf9853d-fb45-434a-99cc-f0a5c1a30177" /> <img width="20" height="20" alt="53dd8866" src="https://github.com/user-attachments/assets/3e392faf-d9dc-4880-b166-ec00121fa6cb" /> [𝑀𝑦 𝑠𝑡𝑎𝑟 <𝟑](https://github.com/liminalheaven)
+<img width="217" height="17" alt="IMG_4863" src="https://github.com/user-attachments/assets/3bf9853d-fb45-434a-99cc-f0a5c1a30177" /> <img width="20" height="20" alt="53dd8866" src="https://github.com/user-attachments/assets/3e392faf-d9dc-4880-b166-ec00121fa6cb" /> 
 
 
 
