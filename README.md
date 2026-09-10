@@ -3,7 +3,7 @@
 
 <a href="https://meikahime.atabook.org"><img width="90" height="90" alt="Untitled399_20260830112422" src="https://github.com/user-attachments/assets/f53eb08a-a160-4a1d-b418-ebf14bcd772f" />
 ✸
-<a href="https://en.pronouns.page/@DoctorFunkbeat_"><img width="90" height="90" alt="Untitled399_20260830112827" src="https://github.com/user-attachments/assets/57668b35-89ff-43e7-8a55-aec93d354199" />
+<a href="https://en.pronouns.page/@DoctorFunkbeatt"><img width="90" height="90" alt="Untitled399_20260830112827" src="https://github.com/user-attachments/assets/57668b35-89ff-43e7-8a55-aec93d354199" />
 ✸
 <a href="https://pronouns.cc/@DoctorFunkbeat/"><img width="90" height="90" alt="Untitled399_20260830192552" src="https://github.com/user-attachments/assets/1a2578e6-5d9f-4c7f-8a51-9946b1ef1266" />
 ✸
