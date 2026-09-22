@@ -4,7 +4,7 @@
 ✸
 <a href="https://en.pronouns.page/@FactoryExplosion"><img width="90" height="90" alt="Untitled399_20260830112827" src="https://github.com/user-attachments/assets/57668b35-89ff-43e7-8a55-aec93d354199" />
 ✸
-<a href="https://pronouns.cc/@DoctorFunkbeat/"><img width="90" height="90" alt="Untitled399_20260830192552" src="https://github.com/user-attachments/assets/1a2578e6-5d9f-4c7f-8a51-9946b1ef1266" />
+<a href="https://pronouns.cc/@DoctorFunkbeat/✸Factory"><img width="90" height="90" alt="Untitled399_20260830192552" src="https://github.com/user-attachments/assets/1a2578e6-5d9f-4c7f-8a51-9946b1ef1266" />
 ✸
 <a href="https://open.spotify.com/user/31r4eu7hkv4ingk57x7aujwbcmfi?si=7wLGyFslTLuWOSDpAu7hoQ&utm_source=copy-link"><img width="90" height="90" alt="Untitled399_20260830193040" src="https://github.com/user-attachments/assets/bcbdfdbb-9a7e-4cbf-8925-692436e9e560" />
 ✸
